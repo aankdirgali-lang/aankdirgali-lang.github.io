@@ -1,1 +1,0 @@
-# aankdirgali-lang.github.io
